@@ -8,4 +8,4 @@ A few random {but fun} facts!:
   2. I love HTML, Javascript, CSS and React!
   3. Eventually, I would love to open a non-profit that teachers inner city kids from my hometown to code!
  
-Feel free to reach me at: danielle.leigh90@gmail.com 📫 or on my linked in profile: linkedin.com/in/danielleleighallen
+Feel free to reach me at: danielle.leigh90@gmail.com 📫 or on my linked in profile: www.linkedin.com/in/danielleleighallen
